@@ -1,0 +1,4 @@
+- 🐼 
+- Data analyst
+- Likes recording
+- Dare to challenge
